@@ -5,7 +5,7 @@
 
 ---
 
-![Untitled](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/77acfba9-c185-4ef1-9d63-e69abee5d8c4/Untitled.png)
+![image](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/77acfba9-c185-4ef1-9d63-e69abee5d8c4/Untitled.png)
 
 ## ● 알바천국의 해당 브랜드 페이지가 나온다.
 
